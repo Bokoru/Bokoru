@@ -1,4 +1,4 @@
-Hello there, I’m @Bokoru! Bokoru is dragonlang for Bo (the) Wolf[Ru] Dragon[Ko]! 🐺🐉
+Hello there, I’m @Bokoru! Bokoru is dragonlang for Bo the Wolf⁽ʳᵘ⁾ Dragon⁽ᵏᵒ⁾! 🐺🐉
 
 I am a furry artist and developer~ 🐺🎨👩‍💻
 
