@@ -9,7 +9,7 @@ I am a furry artist and developer~ 🐺🎨👩‍💻
 🔥 There *literally* be dragons ahead!
 
 Relevant Dragon Language
-Syllable | Meaning | Emotional Meaning
+Syllable | Literal Meaning | Emotional Meaning
 -|-|-
 Bo | Ice/Cold (Element) | Apethetic
 Khi | To be broken or separated | Distress
