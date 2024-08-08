@@ -4,7 +4,7 @@ My name used to be Bokhito before my awakening, but I inherhited the "koru" when
 
 I am a furry artist and developer~ 🐺🎨👩‍💻
 
-🔞 All of the stuff you will find here is NSFW in nature, so beware!
+🔞 A lot of the stuff you will find here is NSFW in nature, so beware!
 
 🔥 There *literally* be dragons ahead!
 
